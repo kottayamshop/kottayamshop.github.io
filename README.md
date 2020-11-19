@@ -1,0 +1,1 @@
+# kottayamshop.github.io
